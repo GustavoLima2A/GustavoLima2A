@@ -1,6 +1,6 @@
 ### Sejam Bem vindos <3 FLAMENGUISTAS 🔴⚫ 𓅂 
 
-![](https://tenor.com/pt-BR/view/gabigol-gif-18253264412850088666#:~:text=Gabigol%20GIF-,%E2%97%8F%20GIF%20SD,-%E2%97%8F%20GIF%20HD)
+   ![gabigol](https://media1.tenor.com/m/_VCfRgc1atoAAAAd/gabigol.gif)
 
  Eu sou o Gustavo aluno do JPC 👨🏾 🇧🇷
 
