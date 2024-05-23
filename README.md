@@ -3,7 +3,6 @@
    ![gabigol](https://media1.tenor.com/m/_VCfRgc1atoAAAAd/gabigol.gif)
 
  Eu sou o Gustavo aluno do JPC 👨🏾 🇧🇷
- ![](j)
 
 - Estou estudando na plataforma [Alura](https://cursos.alura.com.br ).
   
